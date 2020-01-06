@@ -1,0 +1,1 @@
+Homework for https://docs.google.com/presentation/d/1RlGBmr8WwftbwnnnZm5B4h0emc8v4aGtn-dJomAQJLg/edit?usp=sharing
